@@ -1,0 +1,1 @@
+# checkers-shashki.github.io
